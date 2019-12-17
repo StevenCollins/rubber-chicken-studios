@@ -1,1 +1,1 @@
-# rubber-chicken-studios
+# Rubber Chicken Studios
